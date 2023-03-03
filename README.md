@@ -6,4 +6,4 @@ btw thats a repil if u wanna try it
 
 <a href="https://replit.com/@HussainTalib1/Vaildafk">replit</a>
 
-<a href="https://discord.gg/FatDtTeMpM">discord server</a>
+<a href="https://discord.gg/4E7bD58bHD">discord server</a>
